@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AiskTwice
+- 👋 Hi, I’m @AskTwice
 - 👀 I’m interested in ...innotive hacstering
 - 🌱 I’m currently learning ...to solve any challence i'll front manupuletin s.k:t s Art devices 
 - 💞️ I’m looking to collaborate on ...
